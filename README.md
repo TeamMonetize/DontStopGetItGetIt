@@ -17,3 +17,7 @@ Fireworks are cool they go boom boom in the air and pretty they are - have you s
 Build each other up and stop tearing each other down. 
 That new age thing tiky toky is kinda cool. there is like hashbrowns hashtags and stuff.
 what does this branch thing due?
+come on people we are supposed to be leaving a phreakin global pandemic 
+be nicer to each other start doing amazing things willy dangit
+if ya see someone do som nice then u try to due nicer then the previous - that how we build up pay it forward
+dont drop the ball hot potator hot potator
