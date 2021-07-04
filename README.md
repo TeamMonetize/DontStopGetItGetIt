@@ -16,3 +16,4 @@ Oh and, for farts sake have a freakin sense of humor! Laugh a bit. phreakin fart
 Fireworks are cool they go boom boom in the air and pretty they are - have you seen the weeping willow fireworks??
 Build each other up and stop tearing each other down. 
 That new age thing tiky toky is kinda cool. there is like hashbrowns hashtags and stuff.
+what does this branch thing due?
